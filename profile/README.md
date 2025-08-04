@@ -1,3 +1,3 @@
-## Hi there 👋
+## HELLOO
 
-🙋‍♀️ We are Dirty Attic, we strive to do right by our users by creating amazing products and projects.
+This is dirty attic and we are excited to work on sick projects like iSkate. Take a look around and feel free to reach out!
